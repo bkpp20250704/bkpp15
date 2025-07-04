@@ -18,4 +18,4 @@
 
 总之，如果你正在寻找日本AV免费视频资源，选择这些平台既安全又便捷，还能保证高清无卡顿播放。无论是新手还是资深爱好者，都能快速上手，畅快观看。希望这份推荐能够帮助你轻松找到理想的日本AV免费资源，开启愉快的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/bkpp20250704/bkpp15 ）</span>
